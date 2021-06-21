@@ -1,4 +1,4 @@
-# **ETC**
+# **ETC SHOP**
 
 ## About & Features
 
